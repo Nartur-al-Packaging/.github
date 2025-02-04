@@ -1,1 +1,1 @@
-[Lien du site](https://naturalpackaging.fr/fr)
+[Lien du site](https://naturalpackaging.fr/)
